@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @frisbee0605
+- 👀 I’m interested in .game
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me you cant
